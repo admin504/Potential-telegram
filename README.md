@@ -1,0 +1,1 @@
+# Potential-telegram i found this random shit on my phone, what is it![Screenshot_20230523-175354](https://github.com/admin504/Potential-telegram/assets/134473561/34e9c363-60d8-4c80-8e7a-f792fc93dc7f)
